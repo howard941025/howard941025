@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on 長榮大學
 - 📫 How to reach me 阿綸
 - 😄 Pronouns: 他
-- ⚡ Fun fact: 我想去桃機實習
+- ⚡ Fun fact: 我想去桃園機場實習
 - 
 
 
